@@ -8,7 +8,7 @@ Welcome to the official support page for the TimeNote app.
 
 For any questions, feedback, or support requests, please feel free to contact us via email. We will do our best to reply to you as soon as possible.
 
-**Support Email:** `your-email@example.com`
+**Support Email:** `harlanforwork@outlook.com
 
 ---
 
