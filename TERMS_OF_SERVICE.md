@@ -2,7 +2,7 @@
 
 **Last Updated:** August 8, 2025
 
-Please read these Terms of Service ("Terms", "Terms of Service") carefully before using the [您的App名称] mobile application (the "Service") operated by [您的姓名或工作室名称, 例如 Jinpeng Xu] ("us", "we", or "our").
+Please read these Terms of Service ("Terms", "Terms of Service") carefully before using the TimeNote:Track your day mobile application (the "Service") operated by us.
 
 Your access to and use of the Service is conditioned on your acceptance of and compliance with these Terms. These Terms apply to all visitors, users, and others who access or use the Service.
 
